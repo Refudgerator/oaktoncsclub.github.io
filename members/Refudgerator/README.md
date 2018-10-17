@@ -1,6 +1,6 @@
 #Richard Dong
 
-I am the ***biggest*** gay
+I am *derp*
 
 ![rip](https://vignette.wikia.nocookie.net/r2d/images/f/f6/Rip-clipart-rip-gravestone-md.png/revision/latest?cb=20150721201041)
 
